@@ -1,6 +1,5 @@
+- Just for fun and to record!!!
 - 👋 Hi, I’m Uni from Taiwan
-- 👀 I’m interested in 
-- 🌱 I’m currently learning ...
 - 📫 How to reach me : lkim313815@gmail.com
 
 <!---
